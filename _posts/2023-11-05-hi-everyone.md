@@ -1,3 +1,3 @@
 ## You are not supposed to be here
 
-This is for me and me only. So if you found this website, please just go away
+This is for me and me only. So if you found this website, please just go away.
