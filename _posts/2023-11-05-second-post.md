@@ -4,7 +4,6 @@ Hi
 
 I want to remind you that you are not supposed to read this, so please close this tab and get out!
 Well, I want to tell you the story of someone that shine so brightly and how I have a feeling for her.
-
 Aku akan mencoba menulis dalam bahasa Indonesia saja, memastikan bahwa kalian semua tidak akan paham hahaha
 
 Aku bertemu dia secara online. Teman baikku menyampaikan bahwa salah satu sahabatnya ingin melamar ke salah satu beasiswa. Dengan senang hati aku menyampaikan kesediaanku. Beberapa waktu kemudian kita bertemu melalui zoom. Pertemuan itu berlangsung selama 1 jam dan aku cukup beruntung untuk mengetahui bagaimana hidupnya berjalan secara ringkas dan aku bersyukur.
